@@ -1,2 +1,2 @@
 # HYDRA_lesson
-gtrekhov@mail.ru
+Это полный треш
